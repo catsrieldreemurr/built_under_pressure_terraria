@@ -115,3 +115,11 @@ Underground Desert – Eleventh Hour (The Foundation)
 Journey’s End – Fresh Rain (Doors)
 
 Deerclops – Seek Merch Trailer (Doors)
+
+
+## Credits
+Pressure Music by NoLongerNull, Zerohpoint & Beatimesfive
+
+Doors Music by LightningSplash
+
+The Foundation music by Mekbok
